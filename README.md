@@ -11,6 +11,5 @@ https://www.linkedin.com/in/brian-mwohi-52bb0816b
 or through my email address which is 
 bkariuki572@gmail.com.
 
-You can also follow me on twitter @bkariuki572. 
-I hope that you will love and enjoy it. I am 
-looking forward to collaborate with you.
+
+
